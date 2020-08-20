@@ -1,6 +1,6 @@
 **Oliver's Introduction**
 
-Hi everyone! My name is Oliver and I am a new PhD student and TA in statistics department here at UNL. 
+Hi everyone! My name is Oliver and I am a new PhD student and TA in the statistics department here at UNL. 
 I just moved to Lincoln about a month ago and so far, I'm really liking it! 
 I came from central Masssachusetts where I grew up. 
 I recently finsihed my undergraduate degree this year at a very small state school known as Fitchburg State Universtiy in Fitchburg, MA. 
